@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @IngramC2557
+- 👀 I’m interested in ... Learning
+- 🌱 I’m currently learning ... Math,Science,Social Studies,Language Arts, Music, and Keyboarding
+- 💞️ I’m looking to collaborate on ... nothing
+- 📫 How to reach me ... IngramC2557@stu.chesterfieldschools.org
